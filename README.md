@@ -1,40 +1,32 @@
 Weet goed wat deze opleiding inhoudt en of deze opleiding bij je past
-Brief aan de mentor
-Vragenlijst over hard en softskills voor een match met een stageplek
+Fotos voor portfolio
 
 Je kunt je persoonlijke kwaliteiten benoemen en uitleggen
-LinkedIn profiel aanmaken
-Disc test
-360 graden feedback
+Profile(3) (1)
 
 Je ontwikkelt studievaardigheden en kunt deze inzetten
-Week en dagplanner
-Doelen SMART formuleren
+Smartopdracht
 
 Je kunt reflecteren volgens verschillende manieren en deze inzetten
-Reflecteren STARR model
-Reflecteren hand model
+Reflectie
 
 Je krijgt meer inzicht in jouw motieven om in de ICT te werken
-Omschrijving van Ideale baan
-Disc test
-Vragenlijst over hard en softskills voor een match met een stageplek
+Fotos voor portfolio
 
 Je ontwikkelt je persoonlijk maar ook beroepsmatig
-LinkedIn profiel aanmaken
-360 graden feedback
+Profile(3) (1)
 
 Je weet wat een goede beroepshouding is, en wat het beroep inhoudt
-Stage voorbereiding (sollicitatiebrief, mail en belscript)
-Bewijsmateriaal voor Kerntaken en werkprocessen van het kwalificatie dossier software developer
+Solicitatie voor stage software development brief
+Voorbereiden voor kennismaking na-mailen
+Voorbereiden voor kennismaking belscript
 
 Je weet in welke branches je kunt werken als je gediplomeerd bent en wat het werk inhoudt
-Bewijsmateriaal voor Kerntaken en werkprocessen van het kwalificatie dossier software developer
-LinkedIn profiel aanmaken
+Profile(3) (1)
 
 Je maakt een beargumenteerde keuze over het vervolg na je opleiding
-Brief aan de mentor
-Omschrijving van Ideale baan
+Briefaandementor
+
 
 Je leert verantwoordelijkheid te nemen voor je eigen leerproces
 Week en dagplanner
